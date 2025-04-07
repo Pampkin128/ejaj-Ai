@@ -1,0 +1,2 @@
+# ejaj-Ai-
+pajtorč atd
