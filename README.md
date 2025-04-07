@@ -1,2 +1,2 @@
-# ejaj-Ai-
+# ejaj (Ai)
 pajtorč atd
